@@ -1,2 +1,2 @@
 # b-
-Tấn Giàu bị khùm
+Tấn Giàu bị hâm
